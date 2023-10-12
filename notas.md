@@ -1,0 +1,1 @@
+Mi nombre es Mario, me gusta la ciencia y la informática y en mi tiempo libre veo Twitch y juego a videojuegos, también soy técnico instalador electricista homologado por industria ya que tengo el Grado Superior de Instalaciones Electroténicas y Automáticas.
